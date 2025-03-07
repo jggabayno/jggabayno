@@ -3,4 +3,4 @@
 🚀 Currently working at **DOXA Talent / Fifty Flowers**  
 📫 Reach me at [Portfolio](https://jggabayno.vercel.app/contact) | [Linkedin](linkedin.com/in/jggabayno)
 
-If my projects help you, feel free to **fork, clone, or star** ⭐
+Feel free to **fork or clone** my repositories! If you find them helpful, a ⭐ would mean a lot. 😊 **Follow me** for more updates and projects! 🚀
